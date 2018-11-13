@@ -1,0 +1,2 @@
+# infografia
+Diplomado de infografía
